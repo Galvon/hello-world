@@ -1,2 +1,3 @@
 # hello-world
 walking the edge, improving one step at a time...
+actually i'm taking half baby steps and still is progress- learning to enjoy mvoing in the right direction, stillness as a progression and a pause to allow for growth.
